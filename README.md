@@ -1,7 +1,4 @@
-**Important**: This is not for you. It is for me. 
-Here are some websites that I would like to remember. 
-The links are ordered chronologically by time of visit, because I would like to remember that too.
-Likewise, I want to remember how I found them and what I thought about them.
+Here are some websites that I would like to remember, listed chronologically by the time of my visit, along with a note on how I discovered them and my impressions.
 
 That's it. Enjoy.
 
